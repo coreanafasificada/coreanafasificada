@@ -6,3 +6,9 @@
 📚- estou estudando pelo alura.
 
 *obrigado pela visita 😸🐵
+
+
+
+
+![]()
+https://media.tenor.com/3Z0FB2xm8UUAAAAC/kagami-miraculous.gif
